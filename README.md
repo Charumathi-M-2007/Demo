@@ -1,4 +1,4 @@
-#personal info
+#personal info:
  I am Charumathi M of BE.CSA-A,
 I'm from Coimbatore,
 Im currently doing my engineering at Kite (Kg instutuions),Coimbatore.
