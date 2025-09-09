@@ -9,7 +9,6 @@ I want to gain knowledge about coding,
 I'm looking forward to work on this field.
 
 My family info:
-My mother tounge is Tamil
 My father is S Muthukumaran , he is a bussiness man .
 My mother is M Ramya , she is a homemaker.
 I have a younger brother , he is currently doing his schoolings.
