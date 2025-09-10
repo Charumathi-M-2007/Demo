@@ -14,9 +14,8 @@ My mother is M Ramya , she is a homemaker.
 I have a younger brother , he is currently doing his schoolings.
 
 
-I dont have particular role model but I want to be a better person every day , learning something new and improving my personality.
+I dont have any particular role model but I want to be a better person every day , learning something new and improving my personality.
 
- Something for myself:"Everything happens for a reason"
 
 
 
